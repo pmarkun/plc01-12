@@ -1,1 +1,1 @@
-Dispõe sobre o ensino de música como conteúdo obrigatório da disciplina de artes na rede municipal de ensino e dá outras providências.
+Dispõe sobre o ensino de cultura hacker como disciplina obrigatória na rede municipal de ensino e dá outras providências.
